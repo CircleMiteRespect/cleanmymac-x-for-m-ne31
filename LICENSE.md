@@ -1,4 +1,4 @@
-# 
+# elite CleanMyMac X for macOS Extension | password-sharing + safe-browsing is the best CleanMyMac X for macOS extension, featuring password-sharing and safe-browsing. Secure,
 
 
 
